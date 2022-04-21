@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @youtsidebox
-- 👀 I’m interested in diverting myself intto a new career because I feel traped and desperate to feel free again
+- 👀 I’m interested in diverting myself into a new career because I feel traped and desperate to feel free again
 - 🌱 I’m currently learning introduction to computer science 
 - 💞️ I’m looking to collaborate on helping each other and geting encourgement from you 
 - 📫 how to reach me by email: shirleyfish@163.com
